@@ -1,0 +1,5 @@
+- 👋 Hiya, I’m @Frenshia
+- 👀 I’m interested in potatoes
+- 🌱 I’m currently learning how to violate the geneva convention
+- 💞️ I’m looking to collaborate on potato farming
+- 📫 How to reach me fly to ireland and holler
